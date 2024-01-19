@@ -1,0 +1,1 @@
+# Analysis-of-the-Industrial-Contribution-to-the-AI-State-of-art
